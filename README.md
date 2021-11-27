@@ -1,5 +1,4 @@
-![Name](https://github.com/huayiding97/huayiding97/blob/master/Hello(1).gif)
-![Name](https://github.com/huayiding97/huayiding97/blob/master/Name.png)
+ 
 
 
  ### Profile Views :<br>
